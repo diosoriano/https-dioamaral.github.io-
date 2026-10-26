@@ -1,2 +1,2 @@
-aqui nao as expectativas a serem alcançadas com a landing page 
+aqui vão as expectativas a serem alcançadas com a landing page 
 
